@@ -7,3 +7,9 @@
 #### Note From Zack Kimelheim (below) :bowtie:
 
 ⋅⋅⋅ Well this is a mind f***! Implementing Agile Methodology in to your families and homes! Who knew! I'm all about it! 
+
+#### Note From Rohan Reddy
+
+⋅⋅⋅ Definitely an interesting TED talk. I can imagine how the bottom-up idea flow and accountability that define agile could be applied to parenting strategy. In my opinion, this would teach kids the right values, values that would carry on into their adult lives. On the contrary, traditional top-down parenting could result in either lack of assertiveness or excessive rebelliousness in the kid. 
+
+
